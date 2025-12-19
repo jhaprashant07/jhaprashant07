@@ -14,7 +14,7 @@ Email Me 👉 ✉️ prashant34076@gmail.com For Collaboration/Project or Anythi
 
 📫 How to reach me: Enter your email here
 
-😄 Pronouns: Imran Sir
+😄 Pronouns: Prashant Jha
 
 ⚡ Fun fact: I Love Tech and Tech Love Me
 
